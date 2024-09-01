@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **shriharshsistla@yahoo.in**
 
-- ⚡ Fun fact **You gonna love my company (humor)**
+- ⚡ Fun fact **You gonna love my company **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
